@@ -4,4 +4,6 @@
 ![homepage](https://user-images.githubusercontent.com/127126400/223157643-05576a8c-0aea-48eb-bf23-e712fcbcd2f6.PNG)
 This bank phishing pages are available message me on telegram to get the full script. <br>
 You can also request for other bank pages <br>
-<strong>MESSAGE ME</strong> > https://t.me/Dacypherd
+<strong>MESSAGE ME</strong> > https://t.me/Dacypherd <br>
+Free bank letter for any bank script purchased. <Br>
+<strong> Full Testing To Your Satisfaction</strong>
